@@ -18,3 +18,4 @@
 |COVID Memorial|KTNV Channel 13 Las Vegas. April 17, 2020. Remembering the victims of COVID-19.https://www.youtube.com/watch?v=LN-M1zYKZIM&t=100s|
 |UN Chief Speaking|CGTN. April 19, 2020. UN chief: 'We must unite' to overcome COVID-19 pandemic. https://www.youtube.com/watch?v=sir4yhn99R8|
 |Emotional Piano Music|Tictac9. May 7, 2020. Emotional Piano. https://freesound.org/s/517057/|
+|Vaccine Report|CBC News. July 20, 2020. COVID-19 vaccine shows positive results in first phase of human trials. https://www.youtube.com/watch?v=Q0a_UFsmqh8|
