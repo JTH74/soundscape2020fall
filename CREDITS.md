@@ -16,3 +16,4 @@
 |Guitar Music|ValentinSosnitskiy. November 30, 2019. Guitar Jam in Ableton Live.  https://freesound.org/s/495482/|
 |Party Chatter|Pfannkuchn. January 29th, 2019. Party-People indoor 02 - lively, louder (german).https://freesound.org/s/457605/|
 |COVID Memorial|KTNV Channel 13 Las Vegas. April 17, 2020. Remembering the victims of COVID-19.https://www.youtube.com/watch?v=LN-M1zYKZIM&t=100s|
+|UN Chief Speaking|CGTN. April 19 2020. UN chief: 'We must unite' to overcome COVID-19 pandemic. https://www.youtube.com/watch?v=sir4yhn99R8|
