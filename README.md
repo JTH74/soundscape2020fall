@@ -1,1 +1,1 @@
-This is placeholder text for Jake's future soundscape.
+My  soundscape is named "War Scene" and it is supposed to act as a view into a battle field in the Vietnam war. This is shown through the constant gunfire and explosions as well as the rustling of foliage to emphasize the surrounding being a jungle. In my soundscape, we follow two soldiers after a bombing where one is severly injured and eventually flown away from the battlefield. 
